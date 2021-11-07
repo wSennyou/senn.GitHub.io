@@ -1,0 +1,1 @@
+\> 本文由 \[简悦 SimpRead\](http://ksria.com/simpread/) 转码， 原文地址 \[shumeipai.nxez.com\](https://shumeipai.nxez.com/2016/06/20/lakka-let-raspberry-pi-turned-around-game-simulator.html)
